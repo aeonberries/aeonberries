@@ -6,3 +6,6 @@
 
 
 <p align="center">" 𝖨 𝖽𝗂𝖽𝗇’𝗍 𝗋𝖾𝖺𝗅𝗂𝗓𝖾 𝗒𝗈𝗎 𝗐𝖾𝗋𝖾 𝗄𝖾𝖾𝗉𝗂𝗇𝗀 𝗌𝖼𝗈𝗋𝖾. "</p>
+
+
+![IMG 6712](https://i.postimg.cc/wj7M6fg3/IMG-6712.png)
