@@ -1,24 +1,8 @@
-<p align="center">" 𝖳𝗁𝗂𝗌 𝗂𝗌 𝗀𝖾𝗍𝗍𝗂𝗇𝗀 𝗈𝗅𝖽… 𝗌𝖺𝗏𝗂𝗇𝗀 𝗒𝗈𝗎𝗋 𝖺𝗌𝗌— 𝗍𝗁𝖺𝗍’𝗌 𝗍𝗐𝗂𝖼𝖾! "</p>
+![IMG 8153](https://i.postimg.cc/pVg8Nm68/IMG-8153.png)
 
 
-
-![IMG 6708](https://i.postimg.cc/05mCNjWY/IMG-6708.png)
-
-
-<p align="center">" 𝖨 𝖽𝗂𝖽𝗇’𝗍 𝗋𝖾𝖺𝗅𝗂𝗓𝖾 𝗒𝗈𝗎 𝗐𝖾𝗋𝖾 𝗄𝖾𝖾𝗉𝗂𝗇𝗀 𝗌𝖼𝗈𝗋𝖾. "</p>
-
+<p align="center"> “𝗂’𝗏𝖾 𝖻𝖾𝖾𝗇 𝗐𝗈𝗋𝗌𝖾,” 𝗃𝖺𝗌𝗈𝗇 𝖺𝗌𝗌𝗎𝗋𝖾𝖽 𝗁𝖾𝗋. “𝗈𝗇𝖼𝖾 𝗂𝗇 𝗈𝗋𝖾𝗀𝗈𝗇, 𝗍𝗁𝗂𝗌 𝖽𝗋𝖺𝖼𝖺𝖾𝗇𝖺 𝖼𝗎𝗍 𝗈𝖿𝖿 𝗆𝗒 𝖺𝗋𝗆𝗌.” </p>
+<p align="center"> 𝖯𝗂𝗉𝖾𝗋 𝖻𝗅𝗂𝗇𝗄𝖾𝖽. 𝖳𝗁𝖾𝗇 𝗌𝗁𝖾 𝗌𝗅𝖺𝗉𝗉𝖾𝖽 𝗁𝗂𝗌 𝖺𝗋𝗆 𝗀𝖾𝗇𝗍𝗅𝗒. “𝖲𝗁𝗎𝗍 𝗎𝗉.” </p>
+<p align="center"> “𝖨 𝗁𝖺𝖽 𝗒𝗈𝗎 𝖿𝗈𝗋 𝖺 𝗌𝖾𝖼𝗈𝗇𝖽.” </p>
 
 ![IMG 6712](https://i.postimg.cc/wj7M6fg3/IMG-6712.png)
-
-
-<p align="center">𝗁𝗂 𝗆𝗒 𝗇𝖺𝗆𝖾 𝗂𝗌 𝖼𝖺𝖽𝖾𝗇 𝗈𝗋 𝖺𝗎𝖽𝗋𝖾 𝗈𝗋 𝗉𝖺𝗇𝖽𝖺𝗌 𝗂𝖽𝗄 𝖨 𝗀𝗈 𝖻𝗒 𝖺𝗇𝗒 𝗈𝖿 𝗍𝗁𝗈𝗌𝖾. 𝖨 𝗀𝗈 𝖻𝗒 𝖺𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌 𝖺𝗇𝖽 𝖨’𝗆 𝖺 𝗌𝗎𝗌𝗉𝖾𝖼𝗍𝖾𝖽 𝗌𝗒𝗌𝗍𝖾𝗆. 𝖨’𝗆 16 𝖺𝗌 𝗐𝖾𝗅𝗅 :𝖯</p>
-<p align="center">𝖸𝗈𝗎 𝖼𝖺𝗇 𝖺𝖼𝖼𝖾𝗌𝗌 𝗆𝗒 𝖽𝗇𝗂 𝗅𝗂𝗌𝗍: https://aeonsdarling.carrd.co.</p>
-
-
-<p align="center">𝖨𝗇𝗍𝖾𝗋𝖾𝗌𝗍𝗌 : 𝖱𝖾𝗌𝗂𝖽𝖾𝗇𝗍 𝖤𝗏𝗂𝗅 (4 & 9 𝖺𝗋𝖾 𝗆𝖺𝗂𝗇 𝖿𝗈𝖼𝗎𝗌), 𝖬𝖼𝗒𝗍, 𝖫𝗎𝖼𝗂𝖿𝖾𝗋, 𝖳𝗐𝗂𝗌𝗍𝖾𝗋𝗌, 𝖬𝖺𝗒 𝖬𝖺𝖽𝗇𝖾𝗌𝗌, 𝖥𝗈𝗋𝗌𝖺𝗄𝖾𝗇, 𝖧𝖾𝖺𝗍𝗁𝖾𝗋𝗌, 𝖳𝗁𝖾 𝖮𝗎𝗍𝗌𝗂𝖽𝖾𝗋𝗌, 𝖯𝖩𝖮/𝖧𝖮𝖮/𝖳𝖮𝖠, 𝖣𝖢, 𝖥𝖭𝖠𝖥, 𝖩𝗎𝗋𝖺𝗌𝗌𝗂𝖼 𝖶𝗈𝗋𝗅𝖽, 𝖢𝗋𝖾𝖾𝗉𝗒𝗉𝖺𝗌𝗍𝖺, 𝖲𝖺𝗇𝖽𝖾𝗋 𝖲𝗂𝖽𝖾𝗌. 𝖨 𝖺𝗅𝗌𝗈 𝖽𝖺𝖻𝖻𝗅𝖾 𝗂𝗇𝗍𝗈 𝗍𝗁𝖾 𝖭𝖥𝖫 𝖾𝗏𝖾𝗋𝗒 𝗌𝖾𝖺𝗌𝗈𝗇. 𝖨 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝗀𝗈 𝖿𝗈𝗋 𝗍𝗁𝖾 𝖼𝗁𝗂𝖾𝖿𝗌 𝖺𝗇𝖽 𝗅𝗂𝗈𝗇𝗌 😁</p>
-
-
-[<img src="https://i.postimg.cc/TYrh77ff/IMG-6726.png<img" width="350">](https://newsidebaygimmicks.straw.page)
-
-[<img src="https://i.postimg.cc/gJJbcXFk/IMG-6827.png<img" width="350">](https://aeonberries.atabook.org)
-
