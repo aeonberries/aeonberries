@@ -1,11 +1,11 @@
-![IMG 8153](https://i.postimg.cc/pVg8Nm68/IMG-8153.png)
+<p align="center"> " 𝖳𝗁𝗂𝗌 𝗂𝗌 𝗀𝖾𝗍𝗍𝗂𝗇𝗀 𝗈𝗅𝖽…𝗌𝖺𝗏𝗂𝗇𝗀 𝗒𝗈𝗎𝗋 𝖺𝗌𝗌—𝗍𝗁𝖺𝗍’𝗌 𝗍𝗐𝗂𝖼𝖾 ! " </p>
+
+![IMG 8324](https://i.postimg.cc/m2WhzPJ2/IMG-8234.png)
+
+<p align="center"> " 𝖨 𝖽𝗂𝖽𝗇’𝗍 𝗋𝖾𝖺𝗅𝗂𝗓𝖾 𝗒𝗈𝗎 𝗐𝖾𝗋𝖾 𝗄𝖾𝖾𝗉𝗂𝗇𝗀 𝗌𝖼𝗈𝗋𝖾 . " </p>
 
 
-<p align="center"> “𝗂’𝗏𝖾 𝖻𝖾𝖾𝗇 𝗐𝗈𝗋𝗌𝖾,” 𝗃𝖺𝗌𝗈𝗇 𝖺𝗌𝗌𝗎𝗋𝖾𝖽 𝗁𝖾𝗋. “𝗈𝗇𝖼𝖾 𝗂𝗇 𝗈𝗋𝖾𝗀𝗈𝗇, 𝗍𝗁𝗂𝗌 𝖽𝗋𝖺𝖼𝖺𝖾𝗇𝖺 𝖼𝗎𝗍 𝗈𝖿𝖿 𝗆𝗒 𝖺𝗋𝗆𝗌.” </p>
-<p align="center"> 𝖯𝗂𝗉𝖾𝗋 𝖻𝗅𝗂𝗇𝗄𝖾𝖽. 𝖳𝗁𝖾𝗇 𝗌𝗁𝖾 𝗌𝗅𝖺𝗉𝗉𝖾𝖽 𝗁𝗂𝗌 𝖺𝗋𝗆 𝗀𝖾𝗇𝗍𝗅𝗒. “𝖲𝗁𝗎𝗍 𝗎𝗉.” </p>
-<p align="center"> “𝖨 𝗁𝖺𝖽 𝗒𝗈𝗎 𝖿𝗈𝗋 𝖺 𝗌𝖾𝖼𝗈𝗇𝖽.” </p>
-
-![IMG 6712](https://i.postimg.cc/KjyMMVL8/IMG-8185.png)
+![IMG 6712](https://i.postimg.cc/mg2LCCw4/IMG-8238.png)
 
 <p align="center">𝗁𝗂 𝗆𝗒 𝗇𝖺𝗆𝖾 𝗂𝗌 𝖼𝖺𝖽𝖾𝗇 𝗈𝗋 𝖺𝗎𝖽𝗋𝖾 𝗈𝗋 𝗉𝖺𝗇𝖽𝖺𝗌 𝗂𝖽𝗄 𝖨 𝗀𝗈 𝖻𝗒 𝖺𝗇𝗒 𝗈𝖿 𝗍𝗁𝗈𝗌𝖾. 𝖨 𝗀𝗈 𝖻𝗒 𝖺𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌 𝖺𝗇𝖽 𝖨’𝗆 𝖺 𝗌𝗎𝗌𝗉𝖾𝖼𝗍𝖾𝖽 𝗌𝗒𝗌𝗍𝖾𝗆. 𝖨’𝗆 16 𝖺𝗌 𝗐𝖾𝗅𝗅 :𝖯</p>
 <p align="center">𝖸𝗈𝗎 𝖼𝖺𝗇 𝖺𝖼𝖼𝖾𝗌𝗌 𝗆𝗒 𝖽𝗇𝗂 𝗅𝗂𝗌𝗍: https://piperdarling.carrd.co.</p>
